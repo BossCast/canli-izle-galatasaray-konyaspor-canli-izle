@@ -1,4 +1,4 @@
-#  √[CANLI@İZLE!!]*Galatasaray - Hatayspor Canlı Izle 16. 08. 2024
+#  √[CANLI@İZLE!!]*Galatasaray - Konyaspor Canlı Izle 16. 08. 2024
 
 CANLI İZLE || Konyaspor - Galatasaray maçı ne zaman 2024, saat kaçta? Konyaspor Galatasaray hangi kanalda? Süper Lig Konyaspor Galatasaray maç kadrosu. Konyaspor - Galatasaray maçını canlı izle (Maç linki)
 
